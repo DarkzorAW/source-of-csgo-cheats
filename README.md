@@ -1,2 +1,2 @@
 # source-of-csgo-cheats
-just a source of a cs go cheats
+just a source of fatality a cs go cheats
